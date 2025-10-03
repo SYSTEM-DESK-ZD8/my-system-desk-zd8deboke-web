@@ -30,8 +30,4 @@
 
 ## 第六话 Adobe全家桶分享（私信主播领取）
 
-
-
-## 第七话 开箱番茄花园十合一Windows
-
-●镜像：https://www.123912.com/s/Q3upTd-Q8dCd
+# 
